@@ -1,8 +1,6 @@
-I am that one full resolution guy. I make the gamezings for your arms and eyes to enjoy.
+I'm TOMASU. I'm that Mimiga that makes stuff, pretty much whatever I want to make. he/him.
 
-I do not go by derpguy125 anymore in most places. I go by TOMASU now. Please refer to me as such.
-
-Currently working on a game called VOIDLANDS WEST.
+Currently working on... anything.
 
 <!--
 **derpguy125/derpguy125** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
